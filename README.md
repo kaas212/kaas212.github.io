@@ -9,7 +9,7 @@ He just can't, he has a mental illness,
 i will publish rekking's off kubye so stay tuned!!
 For now.. Enjoy this :
 
-![meme](https://user-images.githubusercontent.com/83949253/117640316-31405b00-b185-11eb-9184-219786dca69c.mp4)
+[![Watch the video](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://user-images.githubusercontent.com/83949253/117640730-9ac06980-b185-11eb-9e14-536e12498b07.mp4)
 
 
 
